@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe InDesign for macOS with Adobe InDesign for macOS updated Plugin: UI themes & version history, the #1 plugin. Includes UI themes and version history for a smoother
 
 
 
